@@ -1,0 +1,1 @@
+Tom and Jerry went up a hill and then they slipped. One broke his arm and the other was concerned. Why did Tom and Jerry do this? I don't know. Tom and Jerry procceded to go to the hospital. However, since they live in America, the hospital bills are very big and they couldn't afford treatement. They suffered the rest of their days in agony.
